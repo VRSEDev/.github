@@ -1,6 +1,6 @@
 # **Overview**
 
-VRSE is an Internet Company based in British Columbia, Canada with the goal of providing a fresh new digital experience with ModuleOS and a network of digital tools for creators to thrive.
+VRSE is an Internet Company based in British Columbia, Canada with the goal of providing a fresh new digital experience with ModuleOS and a network of digital tools for creators to thrive. [Support VRSE](https://buy.stripe.com/28EdRb8aTgK0cVV3VGbwk00)
 
 **We have four core pillars: Connective, Creative, Ecological, and Diverse. These pillars are the foundation of our company:** 
 
