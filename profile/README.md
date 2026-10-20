@@ -1,1 +1,1 @@
-[VRSE Development Extended Description, TBD]
+[Overview](https://vrse.ca/overview.pdf)
